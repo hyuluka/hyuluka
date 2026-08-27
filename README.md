@@ -1,4 +1,4 @@
-‎<sup><sub> "⸜(｡˃ ᵕ ˂ )⸝♡"
+‎ <sup><sub>$\color{hotpink}{\text{⸜(｡˃ ᵕ ˂ )⸝♡}}$
 </sub></sup>
  
 <div align="center">
