@@ -1,4 +1,5 @@
-‎<p align="left">⸜(｡˃ ᵕ ˂ )⸝♡</p>
+‎<sup><sub> "⸜(｡˃ ᵕ ˂ )⸝♡"
+</sub></sup>
  
 <div align="center">
 
