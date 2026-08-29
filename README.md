@@ -14,7 +14,7 @@
 <div align="center">
  
 <p align="center">
-<a style="text-align: center;" href="https://rentry.co/callthedoctor4me">rentry</a>  ‎ ㅤ  ᛝ ‎ㅤ  <a style="text-align: center;" href="https://lastseptember.atabook.org/">ata.book</a> ㅤ   ᛝ ㅤ  <a style="text-align: center;" href="https://en.pronouns.page/@Jeffthelover">pronouns page</a> 
+<a style="text-align: center;" href="https://rentry.co/callthedoctor4me">rentry</a>  ‎ ㅤ  ᛝ ‎ㅤ  <a style="text-align: center;" href="https://lastseptember.straw.page">straw page</a> ㅤ   ᛝ ㅤ  <a style="text-align: center;" href="https://en.pronouns.page/@Jeffthelover">pronouns page</a> 
 </p>
 
 <img src= "https://64.media.tumblr.com/f8ab8ba41a71c55fa5b5e26cd93b9e46/4b76fb44fcf153a6-33/s640x960/608fa5b6acf264eae0ee15086641c4a86c1dca5a.webp" alt="Description" style="border: none; background: transparent; box-shadow: none;">
